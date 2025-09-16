@@ -25,7 +25,7 @@ My work centers on building practical, engaging applications with clean, organiz
 I am always open for commissions or discussion, feel free to contact me!
 
 - Discord: `tube__`
-- Reddit: 
+- Reddit: [TubeDev](https://www.reddit.com/user/TubeDev_)
 
 ⚡Looking forward to working with you!
 
